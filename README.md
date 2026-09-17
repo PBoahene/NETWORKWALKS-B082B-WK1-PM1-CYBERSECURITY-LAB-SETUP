@@ -286,7 +286,7 @@ This laboratory is intended strictly for education purposes only. Specific inter
 **Boahene Prince**
 Cybersecurity Intern, Batch B083B — Networkwalks
 
-LinkedIn: *(add your LinkedIn profile link here)*
+LinkedIn: [linkedin.com/in/boahene-prince-603b08372](https://www.linkedin.com/in/boahene-prince-603b08372/)
 
 ---
 
